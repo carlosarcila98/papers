@@ -3,10 +3,12 @@ paper i've been reading
 
 
 March 18
+
 1. Speciation, gene flow, and seasonal migration in Catharus thrushes (Aves:Turdidae)
 https://www.sciencedirect.com/science/article/pii/S1055790319302106?via%3Dihub
 
 March 19
+
 2. Revealing the colourful side of birds: Spatial distribution of conspicuous plumage colours on the body of Australian birds
 https://onlinelibrary.wiley.com/doi/abs/10.1111/jav.02222
 
