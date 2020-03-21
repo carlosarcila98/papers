@@ -26,4 +26,10 @@ https://www.cell.com/current-biology/fulltext/S0960-9822(20)30108-1
 6. Variable visual habitats may influence the spread of colourful plumage across an avian hybrid zone.
 https://www.researchgate.net/publication/6126269_Variable_visual_habitats_may_influence_the_spread_of_colorful_plumage_across_an_avian_hybrid_zone
 
+March 21
+
+7. Systematics, biogeography, and diversification of Scytalopus tapaculos (Rhinocryptidae), an enigmatic radiation of Neotropical montane birds 
+
+https://academic.oup.com/auk/advance-article-abstract/doi/10.1093/auk/ukz077/5810864?redirectedFrom=fulltext
+
 
