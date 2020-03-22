@@ -32,4 +32,12 @@ March 21
 
 https://academic.oup.com/auk/advance-article-abstract/doi/10.1093/auk/ukz077/5810864?redirectedFrom=fulltext
 
+March 22
+
+8. Habitat structure is linked to the evolution of plumage colour in female, but not male, fairy-wrens
+
+https://link.springer.com/article/10.1186/s12862-016-0861-3#Fig1
+
+
+
 
