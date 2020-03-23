@@ -38,6 +38,12 @@ March 22
 
 https://link.springer.com/article/10.1186/s12862-016-0861-3#Fig1
 
+March 23
+
+9. From ornament to armament or loss of function? Breeding plumage acquisition in a genetically monogamous bird
+
+https://besjournals.onlinelibrary.wiley.com/doi/abs/10.1111/1365-2656.12855
+
 
 
 
