@@ -44,6 +44,13 @@ March 23
 
 https://besjournals.onlinelibrary.wiley.com/doi/abs/10.1111/1365-2656.12855
 
+March 24
+
+10. Songbirds tune their vocal tract to the fundamental
+frequency of their song
+
+https://www.ncbi.nlm.nih.gov/pubmed/16567614
+
 
 
 
