@@ -56,3 +56,10 @@ https://www.ncbi.nlm.nih.gov/pubmed/16567614
 
 https://www.nature.com/articles/s41598-020-58843-5#disqus_thread
 
+March 26
+
+12. Widespread loss of sexually selected traits: how the peacock lost its spots
+
+https://www.sciencedirect.com/science/article/abs/pii/S0169534701022170
+
+
