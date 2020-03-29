@@ -72,3 +72,8 @@ https://www.ncbi.nlm.nih.gov/pubmed/22030736
 
 https://www.ncbi.nlm.nih.gov/pubmed/24943371
 
+15. New insights from female bird song:towards an integrated approach tostudying male and femalecommunication roles
+
+https://royalsocietypublishing.org/doi/pdf/10.1098/rsbl.2019.0059
+
+
