@@ -62,4 +62,13 @@ March 26
 
 https://www.sciencedirect.com/science/article/abs/pii/S0169534701022170
 
+March 29
+
+13. Birdsong performance and the evolution of simple (rather than elaborate) sexual signals.
+
+https://www.ncbi.nlm.nih.gov/pubmed/22030736
+
+14. Elaborate visual and acoustic signals evolve independently in a large, phenotypically diverse radiation of songbirds.
+
+https://www.ncbi.nlm.nih.gov/pubmed/24943371
 
