@@ -76,4 +76,12 @@ https://www.ncbi.nlm.nih.gov/pubmed/24943371
 
 https://royalsocietypublishing.org/doi/pdf/10.1098/rsbl.2019.0059
 
+16. Female Song Occurs in Songbirds with More Elaborate Female Coloration and Reduced Sexual Dichromatism
+
+https://www.frontiersin.org/articles/10.3389/fevo.2016.00022/full#B31
+
+17. Song evolution in Maluridae: Influences of natural and sexual selection on acoustic structure
+
+https://www.researchgate.net/publication/259235265_Song_evolution_in_Maluridae_Influences_of_natural_and_sexual_selection_on_acoustic_structure
+
 
