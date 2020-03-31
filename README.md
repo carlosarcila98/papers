@@ -84,4 +84,27 @@ https://www.frontiersin.org/articles/10.3389/fevo.2016.00022/full#B31
 
 https://www.researchgate.net/publication/259235265_Song_evolution_in_Maluridae_Influences_of_natural_and_sexual_selection_on_acoustic_structure
 
+March 30
+
+18. Home-range size of an Andean bird: Assessing the role of physical condition. 
+
+https://onlinelibrary.wiley.com/doi/abs/10.1111/btp.12673
+
+19. Levey, D. J., & Stiles, F. G. (1992). Evolutionary Precursors of Long-Distance Migration: Resource Availability and Movement Patterns in Neotropical Landbirds. The American Naturalist, 140(3), 447–476. doi:10.1086/285421 
+
+https://www.journals.uchicago.edu/doi/abs/10.1086/285421
+
+20. Influence of ambient light on the evolution of colour signals: comparative analysis of a Neotropical rainforest bird community
+
+https://onlinelibrary.wiley.com/doi/abs/10.1111/j.1461-0248.2004.00584.x
+
+21. Simultaneous Crypsis and Conspicuousness in Color Patterns: Comparative Analysis of a Neotropical Rainforest Bird Community
+
+https://www.journals.uchicago.edu/doi/abs/10.1086/510138
+
+22. Vocal behaviour of Barred Antshrikes, a Neotropical duetting suboscine bird
+
+https://link.springer.com/article/10.1007/s10336-012-0867-6
+
+
 
