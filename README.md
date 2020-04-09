@@ -123,3 +123,11 @@ April 2.
 https://link.springer.com/content/pdf/10.1186/1471-2148-11-313.pdf
 
 
+April 9.
+
+26. Climate, crypsis and Gloger's rule in a large family of tropical passerine birds (Furnariidae)
+
+https://www.biorxiv.org/content/10.1101/2020.04.08.032417v1
+
+https://www.biorxiv.org/content/10.1101/2020.04.08.032417v1
+
