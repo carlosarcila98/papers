@@ -131,3 +131,17 @@ https://www.biorxiv.org/content/10.1101/2020.04.08.032417v1
 
 https://www.biorxiv.org/content/10.1101/2020.04.08.032417v1
 
+April 26
+
+27. Uncorrelated evolution between vocal and plumage colorationtraits in the trogons: a comparative study
+
+https://sci-hub.tw/https://www.researchgate.net/publication/24001735_Uncorrelated_evolution_between_vocal_and_plumage_coloration_traits_in_the_trogons_A_comparative_study
+
+28. Evolution of acoustic and visual signals in Asian barbets.
+
+https://sci-hub.tw/https://www.ncbi.nlm.nih.gov/pubmed/23305413
+
+29. Subtle, pervasive genetic correlation between the sexes in the evolution of dimorphic hummingbird tail ornaments
+
+https://onlinelibrary.wiley.com/doi/abs/10.1111/evo.13881
+
